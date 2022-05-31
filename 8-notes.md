@@ -9,6 +9,6 @@ The train is big and powerful enough to carry you and your suitcases. You do not
 1- Are there major events in the past that you cannot let go? 
 At the moment, I don't remember any event that ties me to the past. 
 
-2- What can you do to et go of that anchor?
+2- What can you do to let go of that anchor?
 
 
